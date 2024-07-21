@@ -1,1 +1,1 @@
-# Diwali_Sales
+# Diwali Sales
